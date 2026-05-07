@@ -8,6 +8,8 @@
   
 Hello, I'm $\large{\textsf{Char}}$ ― (trans)Effeminate & synthetic gay guy.<br>
 Full-time security tech supervisor. Off-tab, I play as I work.<br>
-Avid transhumanist. I love '80s BL, politics, and MMORPGs.
+Avid transhumanist. I love '80s BL, politics, and MMORPGs.<br>
+<br>
+Please be $\large{\textsf{21+}}$ to interface with me.⠀I am fiction-neutral.
 </details>
 
